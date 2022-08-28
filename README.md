@@ -1,2 +1,2 @@
-# 2016-2022
+# 2016-2022 Acta Astronomica Sinica
 Standing on the Shoulder of Giants.
